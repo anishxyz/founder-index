@@ -1,5 +1,5 @@
 # founder-index
-### [Do Founder-Led Stocks Outperform?](https://anishagrawal.substack.com/p/founder-index)
+### [Do Founder-Led Stocks Outperform?](https://anishagrawal.substack.com/p/founder-stock-index)
 
 
 ### Abstract
